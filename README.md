@@ -20,8 +20,8 @@ I'm a **Full Stack Web Developer** based in **Davao City**, focused on building 
 - 💡 Driven by continuous learning and modern web development trends  
 - ✨ Enthusiastic about improving **developer experience** and **UI/UX**
 
-📫 **Reach me at:** [neuqian2000@gmail.com](mailto:neuqian2000@gmail.com)  
-🔗 **LinkedIn:** [linkedin.com/in/neuqian-rhys-salvador](https://www.linkedin.com/in/neuqian-rhys-salvador-097455282)
+📫 **Reach me at:** [princeobina92@gmail.com](mailto:princeobina92@gmail.com)  
+🔗 **LinkedIn:** [linkedin.com/in/prince-obina](https://www.linkedin.com/in/prince-obina-338388167)
 
 ---
 
